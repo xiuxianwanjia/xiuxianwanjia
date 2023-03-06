@@ -1,5 +1,5 @@
-### Hi there xiuxianwanjia just a student👋
-
+### Hi there xiuxianwanjia just a Handsome guys👋
+just want use discord and GitHub
 <!--
 **xiuxianwanjia/xiuxianwanjia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
